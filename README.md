@@ -1,1 +1,1 @@
-# Mokinames
+# Mokinames ka tik reikia
