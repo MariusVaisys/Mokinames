@@ -1,1 +1,2 @@
-# Mokinames ka tik reikia
+# Mokinames ka tik reikia,
+kiekviena diena vis daugiau ir daugiau
